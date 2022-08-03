@@ -6,4 +6,8 @@
 
 Made with 💕 with @xReru (Janrell Quiaroro) for commission.
 
+2 Games inherited by 1 Setting
+
+# Only for archiving
+
 ~ KumaTech Developers
